@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **arnabmal665@gmail.com**
 
-- 📄 Know about my experiences [https://acrobat.adobe.com/id/urn:aaid:sc:AP:8b01ca18-c94d-4a3f-930b-f9a0008e72e4](https://acrobat.adobe.com/id/urn:aaid:sc:AP:8b01ca18-c94d-4a3f-930b-f9a0008e72e4)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1P-gEtDYUZ6kCcB2werKzZDuUH8Gtf1Qe/view?usp=drive_link]
 
 - ⚡ Fun fact **I always eager to learn new skills and gain new experiences.**
 
